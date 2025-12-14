@@ -1,1 +1,1 @@
-# ININ5_Nikodem_Pryczkowski_79806
+# ININ5_Nikodem_Pryczkowski_79806_zarządzanie_projektem_wdrożeniowym
